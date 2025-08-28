@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kendallbbailey@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1SgbqnqWEjRviH2BXobE0TwHrBjGiiNTj/edit?usp=sharing&ouid=107088354735696690013&rtpof=true&sd=true](https://docs.google.com/document/d/1SgbqnqWEjRviH2BXobE0TwHrBjGiiNTj/edit?usp=sharing&ouid=107088354735696690013&rtpof=true&sd=true)
+- 📄 Resume [https://docs.google.com/document/d/1SgbqnqWEjRviH2BXobE0TwHrBjGiiNTj/edit?usp=sharing&ouid=107088354735696690013&rtpof=true&sd=true](https://docs.google.com/document/d/1SgbqnqWEjRviH2BXobE0TwHrBjGiiNTj/edit?usp=sharing&ouid=107088354735696690013&rtpof=true&sd=true)
 
 - ⚡ Fun fact **I'm from Richmond,VA**
 
