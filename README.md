@@ -7,7 +7,7 @@
 
 - Skills include SQL, Markdown, Video Editing, Graphic Design, Microsoft Office
 
-- I'm intrested in **Exploring communication theory and devloping my technological skills**
+- I'm intrested in **exploring communication theory and devloping my technological skills**
 
 - 📫 How to reach me **kendallbbailey@gmail.com**
 
