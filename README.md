@@ -1,10 +1,10 @@
 <h1 align="center">Hi 👋, I'm Kendall Bailey</h1>
 <h3 align="center">A student at James Madison Univeristy</h3>
 
-- I'm minoring in **Digital Studies**
-
 - I'm Majoring in **Communication Studies with a concentraion in Organizational Communication**
 
+- I'm minoring in **Digital Studies**
+  
 - 📫 How to reach me **kendallbbailey@gmail.com**
 
 - ⚡ Fun fact **I enjoy cooking**
