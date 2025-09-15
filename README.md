@@ -10,7 +10,8 @@
 - I'm intrested in **exploring communication theory and devloping my technological skills**
 
 -  How to reach me **kendallbbailey@gmail.com**
- [Resume](https://docs.google.com/document/d/1SgbqnqWEjRviH2BXobE0TwHrBjGiiNTj/edit?usp=sharing&ouid=107088354735696690013&rtpof=true&sd=true)
+
+ -  [Resume](https://docs.google.com/document/d/1SgbqnqWEjRviH2BXobE0TwHrBjGiiNTj/edit?usp=sharing&ouid=107088354735696690013&rtpof=true&sd=true)
 
 - ⚡ Fun fact **I'm from Richmond,VA**
 <h3 align="left">Languages and Tools:</h3>
