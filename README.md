@@ -1,6 +1,6 @@
 # Hi, I'm Kendall Bailey! 👋
 
-I'm a **Senior at James Madison University** studying **Communication Studies** with a concentration in **Organizational Communication** and a **Digital Studies minor** from **Richmond,Virginia**.
+I'm a **Senior at James Madison University** studying **Communication Studies** with a concentration in **Organizational Communication** and a **Digital Studies minor** from **Richmond, Virginia**.
 
 I’m intrested in working with **nonprofit oranizations**, devloping my **technological skills**, and **digital marketing**.  
 
